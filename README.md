@@ -1,1 +1,1 @@
-readme file From your partner
+ update from Partner's Desktop
